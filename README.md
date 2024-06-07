@@ -1,3 +1,0 @@
-Gene Merc Sepe
-ITS152L - FOPI01
-BSIT
